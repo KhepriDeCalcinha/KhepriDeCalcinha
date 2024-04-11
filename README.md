@@ -1,7 +1,7 @@
-- 👋 Oi, eu sou o joao 🤣🤣
+- 👋 Oi, eu sou o greg 🤣🤣
 - 👀 Estou interessado em mulheres e machos... 🤷‍♀️🤷‍♀️
 - 🌱 Estou aprendendo sobre coach de relacionamento❤
-- 💞️ Eu gosto do kawan... 💕
+- 💞️ Eu gosto do chris(kawan...) 💕
 - 📫 How to reach me ...
 - 😄 Pronomes: sou/delas 😈😈😈
 - ⚡ Fato interessante: Dou o cu
